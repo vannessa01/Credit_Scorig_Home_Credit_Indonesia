@@ -1,1 +1,1 @@
-# Credit_Scorig_Home_Credit_Indonesia
+# Credit_Scoring_Home_Credit_Indonesia
